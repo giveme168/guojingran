@@ -71,3 +71,19 @@
 这一天爸爸妈妈终于等到了你！！！！
 
 <img src="imgs/WechatIMG45.jpeg" width="50%" height="50%">
+
+## [爸爸对这些奇怪玩意很喜欢](20160207/index.html)
+
+> 2016年02月
+
+爸爸对这些奇怪玩意很喜欢
+
+<img src="imgs/WechatIMG46.jpeg" width="50%" height="50%">
+
+## [这是你来到这个世界上的第一天](20160607/index.html)
+
+> 2016年06月
+
+这是你来到这个世界上的第一天
+
+<img src="imgs/WechatIMG48.jpeg" width="50%" height="50%">
